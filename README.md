@@ -1,0 +1,2 @@
+# .github
+GTA VI PC Game Download — Windows-focused game edition availability and acquisition checklist. Review verified PC release availability, installation preparation, download checks and troubleshooting for Grand Theft Auto VI.
